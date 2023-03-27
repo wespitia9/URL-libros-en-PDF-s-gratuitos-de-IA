@@ -1,4 +1,4 @@
-# URL de PDF's gratuitos-de-IA
+# URL de PDF's gratuitos de IA
 FREE AI/Machine Learning eBooks 📚
 #
 1. Introducción al aprendizaje estadístico
