@@ -1,5 +1,5 @@
 # URL de PDF's gratuitos de IA
-FREE AI/Machine Learning eBooks 📚
+La inteligencia artificial es una de las áreas de la tecnología que más ha avanzado en los últimos años y que promete un futuro lleno de posibilidades y avances. Para aquellos interesados en profundizar en este campo, existe una gran cantidad de recursos disponibles en línea, incluyendo libros, artículos y documentos técnicos. Sin embargo, encontrar material de calidad y confiable puede resultar un desafío. A continuación, comparto recursos de excelente fuente de información: Son accesos a material PDF gratuitos de inteligencia artificial. Se pueden explorar desde textos introductorios hasta publicaciones más avanzadas, cubriendo una amplia gama de temas. Si te interesa conocer más sobre IA y explorar sus aplicaciones, estos son recursos significativos.
 #
 1. Introducción al aprendizaje estadístico
 
